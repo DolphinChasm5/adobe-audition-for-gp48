@@ -1,4 +1,4 @@
-# 
+# Adobe Audition for PC | Adobe Audition for Windows updated Tool: macro-recording & time-stretching offers the most advanced Adobe Audition for PC | Adobe Audition for Windows
 
 
 
